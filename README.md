@@ -2,4 +2,4 @@
 
 Favorite Music Artist: **Toby Fox**
 
-Favorite Song: ***CORE***
+Favorite Track: ***CORE***
